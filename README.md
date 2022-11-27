@@ -2,4 +2,4 @@
 - I'm very interested in technology like computers and artificial intelligence as well as game development.
 - I'm currecntly learning Computer science, Game development, Recording and editing and Diy electronics.
 - I could use some help with inspiration for games, videos, diy programming language functions and other projects.
-- You can reach me trough the discord server CFox. I'd Appreciate your support. 🙂
+- You can reach me trough the discord server CFox( https://discord.gg/rt3zksCwEg ) I appreciate all motivation. 🙂
